@@ -1,2 +1,0 @@
-# Sanwal-
-Portfolio website 
